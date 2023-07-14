@@ -1,0 +1,5 @@
+ - shut up
+ - go away
+ - im only here to work with my friends
+ - GET OUT MY PROFILE
+ - 
